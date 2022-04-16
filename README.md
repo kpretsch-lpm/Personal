@@ -5,21 +5,31 @@ What you should get from this? You should feel like you know me a little better,
 
 <B>My Job:</B>
 1.	How Leslie’s defines my job
+
 My job is to increase the shareholder value of the company, which means protecting the existing shareholder value. (It’s really exciting and empowering to be able to do this)
+
 The actual description is longer, but I’m empowered to do everything in my power to immediately, consistently and provide for best climb.
 
 2.	How my boss defines my/his job
+
 Empowering me to raise value as quickly as possible with the added expectation I communicate to him precisely what is going on so he can communicate the decision points upward.
+
 I have added a personal expectation of keeping my boss safe, and I ask that you do the same to me – it grows an intense loyalty in both directions.
 
 3.	The real world stuff
+
 My job is to grow a team of makers and ensure that we always take a certain number of steps forward for every step back, and that the proportion is always right. I am expected to do this as quickly as possible for short term and long term growth. 
+
 It means I constantly remind teams of value, push them to move faster, and encourage them to look at their work. Every question I ask is intensely focused on risk, time and value (in other words, they are always hard – you should never expect an easy question - its not my job). 
+
 What’s important to know is I am not much of a maker anymore, I’m a communicator, decision maker/recommender and coach. I can’t make things without makers. (That’s likely you or your team) 
 
 4.	How I do it?
+
 I try to provide you context as to why we do what we do.
+
 I make you move faster, by making you feel comfortable. This comes in a variety of ways, but usually by empowering you to focus on the value adds, and how to reduce fear or making waiting feel less comfortable than moving). I will jump in any ditch with you, the reason I’m in my role is because I’ve found my way out of that same ditch a few times already.
+
 I am not afraid to mop floors, therefore I’m not scared to look at code either.
 
 <B>How I approach my job (and everything):</B>
