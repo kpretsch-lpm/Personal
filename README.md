@@ -7,37 +7,37 @@ What you should get from this? You should feel like you know me a little better,
 
 1. How Leslie’s defines my job
 
-My job is to increase the shareholder value of the company, which means protecting the existing shareholder value. (It’s really exciting and empowering to be able to do this)
+My job is to increase the shareholder value of the company, which also means protecting the existing shareholder value. (It’s really exciting and empowering to be able to do this)
 
 The actual description is longer, but I’m empowered to do everything in my power to immediately, consistently and provide for best climb.
 
 2. How my boss defines my/his job
 
-Empowering me to raise value as quickly as possible with the added expectation I communicate to him precisely what is going on so he can communicate the decision points upward.
+Empowering me to raise value as quickly as possible with the added expectation I communicate to him precisely what is going on so he can communicate the decision points upward. (Note: My supervisor can and wants precise information, which means i'll need the same from you)
 
 I have added a personal expectation of keeping my boss safe, and I ask that you do the same to me – it grows an intense loyalty in both directions.
 
 3. The real world stuff
 
-My job is to grow a team of makers and ensure that we always take a certain number of steps forward for every step back, and that the proportion is always right. I am expected to do this as quickly as possible for short term and long term growth. 
+My job is to grow a team of makers and ensure that we always take a certain number of steps forward for every step back, and that the proportion is always right. I am expected to do this as quickly as possible for short term and long term growth. I do not believe 0 mistakes is a good strategy, it slows you down far too much.
 
 It means I constantly remind teams of value, push them to move faster, and encourage them to look at their work. Every question I ask is intensely focused on risk, time and value (in other words, they are always hard – you should never expect an easy question - its not my job). 
 
-What’s important to know is I am not much of a maker anymore, I’m a communicator, decision maker/recommender and coach. I can’t make things without makers. (That’s likely you or your team) 
+What’s important to know is I am not much of a maker anymore (10%?), I’m a communicator, decision maker/recommender and coach. I can’t make things without makers. (That’s likely you or your team) 
 
 4. How I do it?
 
 I try to provide you context as to why we do what we do.
 
-I make you move faster, by making you feel comfortable. This comes in a variety of ways, but usually by empowering you to focus on the value adds, and how to reduce fear or making waiting feel less comfortable than moving). I will jump in any ditch with you, the reason I’m in my role is because I’ve found my way out of that same ditch a few times already.
+I make you move faster, by making you feel comfortable. This comes in a variety of ways, but usually by empowering you to focus on the value adds, and how to reduce fear or making waiting feel less comfortable than moving). I will jump in any ditch with you, i'm confident the reason I’m successful in my role is because I’ve found my way out of that same ditch (there are many) a few times already.
 
-I am not afraid to mop floors, therefore I’m not scared to look at code either.
+I am not afraid to mop floors, therefore I’m not scared to look at code either. If there is a task blocking success and no one is picking it up fast enough, I will. That can be intimidating, but what it really means is you are authorized to pick up the ball and shoot regardless of title, role, etc..
 
 <B>How I approach my job (and everything):</B>
 
-At the point you’ve been hired (congratulations), the burden of your success has shifted from you, to me. In the worst employment situations I’ve either hired wrong or motivated wrong – which are both “me issues”. I take this seriously. You’ve made a life decision to be here, and I take my burden to ensure that was not a mistake that you apologize to your family for. Work should make you stronger personally and professionally, I lead so that your significant other says “our life has improved since you joined Leslie’s”. That means, every struggle we have is not a question if we want you on the team, I want you to be successful because I take ownership of that decision.
+At the point you’ve been hired (congratulations), the burden of your success has shifted from you, to me. In the worst employment situations I’ve either hired wrong or motivated wrong – which are both “me issues”. I take this seriously. You’ve made a life decision to be here, and I take my burden to ensure that was not a mistake that you apologize to your family for. Work should make you stronger personally and professionally, I lead so that your significant other says “our life has improved since you joined Leslie’s”. That means, every struggle we have is not a question if we want you on the team, I want you to be successful because I take ownership of that decision. Until the day you leav our company, I take on responsibility for making you successful.
 
-The world is binary and mathematical to me. I often receive the feedback I don’t think like other people, and that’s why I write this. I break every decision into an equation of value, risk, reward and probability. This isn’t an emotional process, therefore don’t receive my opinions/decisions as emotional.
+The world is binary and mathematical to me. I often receive the feedback I don’t think like other people, and that’s why I write this. I break every decision into an equation of value, risk, reward and probability. This isn’t an emotional process, therefore don’t receive my opinions/decisions as emotional. It also means every decision is black and white with a best and set of not-best answers.
 
 I am naturally an internal communicator, who likes time and to think through the issue (I’m challenging myself to be a more external processor). This means I want the deck the night before, to read, and provide feedback. (I call these Airplane Ready: I should be able to read them alone and understand the key points without being previously familiar)
 
